@@ -109,5 +109,5 @@ For any questions, issues, or suggestions, feel free to open an issue in this re
 
 ## 🎮 Play More Games
 
-👉 [Gta San Andreas Mod APK](https://github.com/Gta-San-Andreas-ModAPK)
+- 👉 [Gta San Andreas Mod APK](https://github.com/Gta-San-Andreas-ModAPK)
 
